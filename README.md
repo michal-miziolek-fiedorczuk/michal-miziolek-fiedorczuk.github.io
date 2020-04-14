@@ -1,1 +1,1 @@
-# michalmiziolek-fiedorczuk.github.io
+# michal-miziolek-fiedorczuk.github.io
